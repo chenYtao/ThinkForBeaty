@@ -1,0 +1,2 @@
+# ThinkForBeaty
+ThinkForBeaty
